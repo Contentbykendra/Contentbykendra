@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Contentbykendra
 - 🌱 I’m currently HTML
-- 💞️ Believer In Christ
+- 💞️ Believer In Jesus
 - 📫 How to reach me - kendra.barnes2022@yahoo.com
 
 
