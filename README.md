@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @Contentbykendra
-- 🌱 I’m currently learning HTML
+- 👋 Hi, I’m Kendra
+- 🌱 I’m currently advancing in HTML, CSS, and Python 
 - 💞️ Believer In Jesus
 - 📫 How to reach me - kendra.barnes2022@yahoo.com
 
